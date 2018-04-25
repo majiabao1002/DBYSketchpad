@@ -8,3 +8,7 @@ DBYSketchpad has these features:
 4. Share to your friends
 
 Hello Sketchpad is easy to use, so download it now!
+
+Contact： If you have any questions, you may contact technical support： Phone：+601112177680
+
+Email：Rachel Alonsol750@gmail.com
